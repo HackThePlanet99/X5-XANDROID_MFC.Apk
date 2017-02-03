@@ -1,0 +1,2 @@
+# X5-XANDROID_MFC.Apk
+Custom Built iOS for Android™ Phones Or Tablets, Anonymously Used Private Internet Access to our "MF.C" Wireless Networks/Servers that are modified to give the user full access and connectivity, so the user can then log in, log on, save, set, store, select, maintain, operate, and control Every Single Aspect of the *ALL NEW* internal operarXSOS xviOS' most Basic, to the most Complex &amp; Advanced, digital operations
